@@ -4,6 +4,5 @@ It is a university jointly established by People's Republic of China (PRC) Minis
 
 welcome！
 
-[LinkedIn](https://www.linkedin.com/feed/)  
-[Twitter](https://twitter.com/emilyistoofunky)
+
 
